@@ -1,3 +1,0 @@
-ery5p[itewqqaweyuiopiuytrewqweuiopl
-tyujytkj7uyk
-ygikj 76uykm ujnhyi
